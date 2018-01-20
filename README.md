@@ -13,9 +13,9 @@
 * Раньше хотела стать стоматологом. 
 ------------------
 #### Ссылки на мои социальные сети:
-* [Вконтакте](https://vk.com/revinastasia)
-* [Instagram](https://instagram.com/revinastasia)
-* [Telegram](https://t.me/revinastasia)
+* [Вконтакте](https://vk.com/revinastasia "для общения :)")
+* [Instagram](https://instagram.com/revinastasia "для фотографий :) друзья говорят, что я выкладываю интересные, красивые и смешные stories")
+* [Telegram](https://t.me/revinastasia "для учебы :)")
 ------------------
 ![alt-текст](https://pp.userapi.com/c639722/v639722593/211d9/69MHY87pvFo.jpg)
 
