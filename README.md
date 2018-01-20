@@ -22,6 +22,8 @@
 * [Вконтакте](https://vk.com/revinastasia "для общения :)")
 * [Instagram](https://instagram.com/revinastasia "для фотографий :) друзья говорят, что я выкладываю интересные, красивые и смешные stories")
 * [Telegram](https://t.me/revinastasia "для учебы :)")
+
+![alt-текст](https://pp.userapi.com/c840429/v840429496/45191/aJ3WjoLjl5k.jpg "эти и другие фотографии можно найти в моем инстаграме :)")
 ------------------
 
 
